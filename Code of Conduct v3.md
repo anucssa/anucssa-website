@@ -9,7 +9,7 @@ Everyone in the Common Room is required to agree with the following code of cond
 Talk to one of the committee members or common room officers. Their names and photos are on the poster on the left.
 
 ##The Quick Version##
-The CSSA is dedicated to keeping the common room a harassment-free space for everyone, regardless of gender, gender expression, age, sexual orientation, disability, physical appearance, body size, race, or religion (or lack thereof). We do not tolerate harassment of people in this space in any form. Please respect the common room as a shared space for all our members. Members violating these rules may be sanctioned or expelled from the common room at the discretion of the CSSA Committee or Common Room Officers.
+The CSSA is dedicated to keeping the common room a harassment-free space for everyone, regardless of gender, gender identity, gender expression, age, sexual orientation, disability, physical appearance, body size, race, or religion (or lack thereof). We do not tolerate harassment of people in this space in any form. Please respect the common room as a shared space for all our members. Members violating these rules may be sanctioned or expelled from the common room at the discretion of the CSSA Committee or Common Room Officers.
 
 ##The Less Quick Version##
 Harassment includes offensive verbal comments related to gender, gender expression, age, sexual orientation, disability, physical appearance, body size, race, religion, as well as sexual images in public spaces, deliberate intimidation, stalking, following, harassing photography or recording, sustained disruption, inappropriate physical contact, and unwelcome sexual attention.
