@@ -23,7 +23,7 @@ If you are being harassed, notice that someone else is being harassed, or have a
 ##A few other things##
 Alcohol is not to be stored or consumed in the common room.
 This is a shared space – keep the volume to a reasonable level, and use headphones if you are playing loud music, videos, or playing games. Loud can be taken as ‘above quiet conversation’.
-Keep the common room clean – pick up rubbish (the bins are in the corridor), even if it is not yours.
+Keep the common room clean – pick up rubbish (bins are next to the fridge, and also in the corridor), even if it is not yours.
 If a discussion or argument escalates to a point where it is distressing other members, the parties responsible may be asked to leave.
 
 *Version 3*
