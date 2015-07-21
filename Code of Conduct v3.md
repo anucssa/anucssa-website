@@ -26,4 +26,7 @@ This is a shared space – keep the volume to a reasonable level, and use headph
 Keep the common room clean – pick up rubbish (bins are next to the fridge, and also in the corridor), even if it is not yours.
 If a discussion or argument escalates to a point where it is distressing other members, the parties responsible may be asked to leave.
 
-*Version 3*
+##Feedback##
+If you have feedback for the CSSA Committee about the Common Room, include reports of inappropriate behaviour, please send an email to the **President**, the **Vice-President** and the **Common-Room Representative** using the emails on the poster to the left. If a report involves one of those people, just include the other two. 
+
+*Version 3.1*
