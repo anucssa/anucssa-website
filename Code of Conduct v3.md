@@ -1,7 +1,7 @@
 #ANU CSSA Code of Conduct#
-*Common Room*
+*Common Room and other CSSA-run spaces*
 
-Everyone in the Common Room is required to agree with the following code of conduct. CSSA Committee Members and Common Room Officers will enforce this code. We expect cooperation from everyone to help ensure a safe environment for everybody.
+Everyone in the Common Room and interacting in other spaces that the CSSA moderates (the Facebook group and page) is required to agree with the following code of conduct. CSSA Committee Members and Common Room Officers will enforce this code. We expect cooperation from everyone to help ensure a safe environment for everybody.
 
 **tl;dr: Be excellent with each other**
 
@@ -29,4 +29,4 @@ If a discussion or argument escalates to a point where it is distressing other m
 ##Feedback##
 If you have feedback for the CSSA Committee about the Common Room, including reports of inappropriate behaviour, please send an email to the **President**, the **Vice-President** and the **Common-Room Representative** using the emails on the poster to the left. If a report involves one of those people, just include the other two. 
 
-*Version 3.1*
+*Version 3.2*
