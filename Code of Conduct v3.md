@@ -31,4 +31,4 @@ If you are being harassed, notice that someone else is being harassed, or have a
 If you have feedback for the CSSA Committee about the Common Room, **including reports of inappropriate behaviour**, please send an email to the **President**, the **Vice-President**, and the **Common-Room Representative**, using the emails on the poster to the left. If a report involves one of those people, just include the other two. 
 
 
-*Version 3.2*
+*Version 3.4*
