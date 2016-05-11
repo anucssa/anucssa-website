@@ -25,6 +25,7 @@ If you are being harassed, notice that someone else is being harassed, or have a
 * This is a shared space – keep the volume to a reasonable level, and use headphones if you are playing loud music, videos, or playing games. Loud can be taken as ‘above quiet conversation’.
 * Keep the common room clean – pick up rubbish (bins are next to the fridge, and also in the corridor), even if it is not yours.
 * If a discussion or argument escalates to a point where it is distressing other members, the parties responsible may be asked to leave.
+* Sleeping, snoozing and taking a catnap is prohibited in CSSA spaces (in accordance with CECS policy)
 
 ##Feedback and Reporting
 If you have feedback for the CSSA Committee about the Common Room, **including reports of inappropriate behaviour**, please send an email to the **President**, the **Vice-President**, and the **Common-Room Representative**, using the emails on the poster to the left. If a report involves one of those people, just include the other two. 
