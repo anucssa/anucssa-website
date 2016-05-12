@@ -1,2 +1,1 @@
-# anucssa-website
-The ANU CSSA is moving its website to GitHub
+The code of conduct has moved [here](https://serv1.anucssa.com/bitbucket/projects/COMMONROOM/repos/code-of-conduct)
